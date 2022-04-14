@@ -115,4 +115,4 @@ The emperor was the only one who could visit his daughter and on the 18th birthd
 
 Today, the light has been turned into a small museum and restaurant where you can take a local boat from the nearby beach and visit the Maiden Tower. The ship operates from 09:15 to 18:30 a day and operates every 15 minutes.
 
-Source: [Yummyadvisor](https://www.yummyadvisor.com/"
+Source: [Yummyadvisor](https://www.yummyadvisor.com/)
